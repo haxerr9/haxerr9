@@ -2,7 +2,7 @@
 
 - Hacking tools, malware developer.
 
-- you can reach me by:
+- You can reach me by:
   - Discord: hax9999
 
 - Fun fact: Under 18
